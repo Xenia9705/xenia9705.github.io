@@ -1,15 +1,15 @@
 # Kseniia
 
 ## Education  
-**TungHai University** — *Bachelor’s in International Business Administration* (2021 – 2025)  
-**TungHai University** — *Master’s in Global Business Administration* (2021 – 2025)  
+**Tunghai University** — *Bachelor’s in International Business Administration* (2021 – 2025)  
+**Tunghai University** — *Master’s in Global Business Administration* (2021 – 2025)  
 
 ---
 
 ## Experience  
 
 **Teaching Assistant**  
-*TungHai University* — (2021 – 2023)  
+*Tunghai University* — (2021 – 2023)  
 - Assisted professors in preparing lesson materials and grading assignments.  
 - Supported classroom management and facilitated student learning activities.  
 - Provided guidance and mentorship to undergraduate students.  
