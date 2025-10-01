@@ -27,3 +27,4 @@
 - Strong passion for **foreign languages** and **computer skills** (including productivity tools and programming basics).  
 
 - Recognized for academic excellence and dedication to self-improvement.
+
